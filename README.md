@@ -1,3 +1,3 @@
 # primaMainMetodosEMA
 
-No te olvides de calcar los enlaces! :P
+Espero que esté bien, lo hice un poco a prisas!
